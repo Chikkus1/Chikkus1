@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chikkus1
+- 👋 Hi, I’m @PSYCHOsir
 - 👀 I’m interested in hacking blogging 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on blogging 
